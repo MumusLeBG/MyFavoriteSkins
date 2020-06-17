@@ -1,9 +1,7 @@
 # MyFavoriteSkins
 Here are my favorites osu skins, some of them are edited
 
-# [おやすみ 『goodnight』 - Futaba Rio (not finished)](http://download1585.mediafire.com/q1wogb7y4mqg/sa4y7v0ith4siqj/%E3%81%8A%E3%82%84%E3%81%99%E3%81%BF+%E3%80%8Egoodnight%E3%80%8F+-+Futaba+Rio.osk)
-![](https://i.imgur.com/n1SKigB.png)
-![](https://i.imgur.com/UAdeeT1.png)
+
 
 
 # [おやすみ 『goodnight』](https://s.put.re/MAQa65Dk.osk)
