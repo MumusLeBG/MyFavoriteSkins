@@ -1,7 +1,9 @@
 # MyFavoriteSkins
 Here are my favorites osu skins, some of them are edited
 
-
+# [Mumus & Rio Futaba (made by [DeadlySmile] and Ricardo)](https://files.catbox.moe/jdx61s.osk)
+![](https://imgur.com/fDIit0M.png)
+![](https://imgur.com/8cYSudp.png)
 
 
 # [おやすみ 『goodnight』](https://s.put.re/MAQa65Dk.osk)
