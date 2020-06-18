@@ -6,6 +6,11 @@ Here are my favorites osu skins, some of them are edited
 ![](https://imgur.com/8cYSudp.png)
 
 
+# [Mumus & Rio Futaba - HD](https://download1595.mediafire.com/1vej2amkxxcg/85zdvldcft4i8bd/-++++++%23+Mumus+%26+Rio+Futaba+-+HD.osk)
+![](https://imgur.com/56WPuhO.png)
+![](https://imgur.com/FvTwIm5.png)
+
+
 # [おやすみ 『goodnight』](https://s.put.re/MAQa65Dk.osk)
 ![](https://i.imgur.com/1zMFAKV.png) 
 ![](https://i.imgur.com/qzLtRDs.png) 
