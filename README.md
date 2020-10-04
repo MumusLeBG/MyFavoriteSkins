@@ -21,6 +21,11 @@ Here are my favorites osu skins, some of them are edited
 ![](https://i.imgur.com/qzLtRDs.png) 
 
 
+# [Prawilnosc - Metin 2](http://www.mediafire.com/file/1y1gz3ejvqi9ukr/Prawilnosc_-_Metin_2.osk/file)
+![](https://imgur.com/tvrdQWp.png)
+![](https://imgur.com/kSFdDC7.png)
+
+
 # [Rafis - Mumus Touch](https://mumus.s-ul.eu/aB6UKwSx)
 ![](https://i.imgur.com/6bxTqKv.png)
 ![](https://i.imgur.com/S15Ne2B.png)
