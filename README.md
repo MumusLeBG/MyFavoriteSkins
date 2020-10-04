@@ -1,7 +1,7 @@
 # MyFavoriteSkins
 Here are my favorites osu skins, some of them are edited
 
-# [Mumus & Rio Futaba (made by [DeadlySmile] and Ricardo)](http://www.mediafire.com/file/entnpj1vgod1v3w/-_%2523_Mumus_%2526_Rio_Futaba.osk/file)
+# [Mumus & Rio Futaba (made by [DeadlySmile] and Ricardo)](http://www.mediafire.com/file/entnpj1vgod1v3w/-_%2523_Mumus_%2526_Rio_Futaba.osk/file){:target="_blank"}
 ![](https://imgur.com/9LOvqWT.png)
 ![](https://imgur.com/xdh3Z4i.png)
 
