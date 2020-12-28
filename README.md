@@ -16,6 +16,16 @@ Here are my favorites osu skins, some of them are edited
 ![](https://imgur.com/moqKoz1.png)
 
 
+# [Spazza17 - Punpun White](https://mumus.s-ul.eu/jrDhF6dp)
+![](https://imgur.com/x72c6pu.png)
+![](https://imgur.com/GUIp9z4.png)
+
+
+# [Spazza17 - Punpun Orange](https://mumus.s-ul.eu/Y3Mwh7iV)
+![](https://imgur.com/nft9h8O.png)
+![](https://imgur.com/NfTnCPP.png)
+
+
 # [おやすみ 『goodnight』](https://s.put.re/MAQa65Dk.osk)
 ![](https://i.imgur.com/1zMFAKV.png) 
 ![](https://i.imgur.com/qzLtRDs.png) 
