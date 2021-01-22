@@ -40,7 +40,3 @@ Here are my favorites osu skins, some of them are edited
 ![](https://i.imgur.com/GnUOOHu.png)
 ![](https://i.imgur.com/7fnYMfD.png)
 
-
-# [Freddie Benson x Pokemon](https://s.put.re/wFr16d2J.osk)
-![](https://i.imgur.com/1B9JKUZ.png) 
-![](https://i.imgur.com/dyVebmU.png) 
