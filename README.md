@@ -21,7 +21,7 @@ Here are my favorites osu skins, some of them are edited
 ![](https://imgur.com/NfTnCPP.png)
 
 
-# [おやすみ 『goodnight』]([https://s.put.re/MAQa65Dk.osk](https://www.mediafire.com/file/vl67w6sph1w6lt7/%25E3%2581%258A%25E3%2582%2584%25E3%2581%2599%25E3%2581%25BF_%25E3%2580%258Egoodnight%25E3%2580%258F.osk/file))
+# [おやすみ 『goodnight』](https://s.put.re/MAQa65Dk.osk](https://www.mediafire.com/file/vl67w6sph1w6lt7/%25E3%2581%258A%25E3%2582%2584%25E3%2581%2599%25E3%2581%25BF_%25E3%2580%258Egoodnight%25E3%2580%258F.osk/file)
 ![](https://i.imgur.com/1zMFAKV.png) 
 ![](https://i.imgur.com/qzLtRDs.png) 
 
